@@ -1,4 +1,4 @@
-I'm a cute biological female ♀ with a tiny uterus and a big nose
+I'm a cute biological female ♀️with a tiny uterus and a big nose
 
 she/her
 <!--
