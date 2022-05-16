@@ -1,8 +1,9 @@
-I'm a cute biological female ♀️ with a tiny uterus and a big nose
+I'm a cute little girl ♀️ with a tiny uterus and a big nose
 
 she/her
 
 https://www.last.fm/user/ewozniak86
+https://en.pronouns.page/@ewozniak
 
 <!--
 **Emily-x86-64/Emily-x86-64** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
