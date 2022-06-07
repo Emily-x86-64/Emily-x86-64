@@ -2,8 +2,10 @@ I'm a cute little girl ♀️ with a tiny uterus and a big nose
 
 she/her
 
+:female_sign: :flag_ps: :transgender_flag: :flag_ua: :rainbow_flag: :flag_fr:
+
 https://www.last.fm/user/ewozniak86
-https://en.pronouns.page/@ewozniak
+https://en.pronouns.page/@ewozniak86
 
 <!--
 **Emily-x86-64/Emily-x86-64** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
