@@ -2,7 +2,7 @@ I'm a cute little girl ♀️ with a tiny uterus and a big nose
 
 she/her
 
-:female_sign: :flag_ps: :transgender_flag: :flag_ua: :rainbow_flag: :flag_fr:
+♀️ ⚧️ 🇵🇸 🏳️‍⚧️ 🇺🇦 🏳️‍🌈 🇫🇷
 
 https://www.last.fm/user/ewozniak86
 https://en.pronouns.page/@ewozniak86
